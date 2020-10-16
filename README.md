@@ -1,0 +1,1 @@
+# japanese-core-6000
